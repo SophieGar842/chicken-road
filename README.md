@@ -27,28 +27,28 @@ Tack vare HTML5-teknologi är **Chicken Road** helt kompatibelt med alla mobila 
 
 ## Spelfunktioner och egenskaper
 
-- **98 % RTP** : En återbetalning till spelaren på 98 %, med frekventa utdelningar och en spännande spelupplevelse.
-- **Insatser mellan $0,01 och $200** : Satsa enligt din komfortnivå och maximera dina chanser utifrån din budget.
-- **Maxvinst på $20 000** : Den ultimata jackpotten för dem som vågar ta riskerna.
-- **Hög volatilitet** : Garanti för spänning med hög volatilitet där vinsterna kan bli enorma.
+- **🎯98 % RTP** : En återbetalning till spelaren på 98 %, med frekventa utdelningar och en spännande spelupplevelse.
+- **💰Insatser mellan $0,01 och $200** : Satsa enligt din komfortnivå och maximera dina chanser utifrån din budget.
+- **🏆Maxvinst på $20 000** : Den ultimata jackpotten för dem som vågar ta riskerna.
+- **⚡Hög volatilitet** : Garanti för spänning med hög volatilitet där vinsterna kan bli enorma.
 
 ⏩⏩⏩[**Upptäck funktionerna och vinn stort i Chicken Road !**](https://fspace.link/register)
 
 ## Strategier och tips för att vinna på Chicken Road
 
-### 1. Var inte för girig !
+### 1️⃣Var inte för girig !
 
 Spelet belönar dem som vet när det är dags att sluta. Ta ut dina vinster innan du riskerar för mycket och blir "rostad". Ett smart uttag vid rätt tidpunkt kan vara nyckeln till en storvinst.
 
-### 2. Välj svårighetsgrad med omsorg
+### 2️⃣Välj svårighetsgrad med omsorg
 
 Ju svårare läge, desto högre risker men också större belöningar. **Hard** eller **Hardcore** kan verka skrämmande, men erbjuder också större chans att nå jackpotten på $20 000.
 
-### 3. Hantera din spelkassa
+### 3️⃣Hantera din spelkassa
 
 Precis som med alla casinospel är det viktigt att hantera din budget. Satsa inte allt på en enda omgång. Sprid dina insatser över flera omgångar för att maximera dina chanser att lyckas.
 
-### 4. Ta din tid innan du tar risker
+### 4️⃣Ta din tid innan du tar risker
 
 Varje gång du klarar ett steg kan du ta ut pengar. Skynda inte; tänk noga innan du satsar allt. I slutändan är det du som styr spelet.
 
