@@ -13,7 +13,7 @@ Spelets koncept är enkelt att förstå men erbjuder en spännande utmaning varj
 
 ⏩⏩⏩[**Börja spela Chicken Road nu och testa din tur !**](https://fspace.link/register)
 
-![Chicken Road Casino](chicken road demo game.png)
+![Chicken Road Casino](chicken-road-demo-game.png)
 
 ## Var kan man spela Chicken Road ?
 
